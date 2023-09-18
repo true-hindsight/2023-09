@@ -7,4 +7,4 @@
 
 ## [2023-09-17 | NATO's Patsy](/17.md)
 
-## [2023-09-18 | Damage Done to Humanity by John Locke and His Followers](/18.md)
+## [2023-09-18 | Harms Inflicted upon Humanity by John Locke and His Followers](/18.md)
